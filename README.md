@@ -1,1 +1,0 @@
-<img width="1216" height="832" alt="0 7__artist_WLOP __, 0 6__artist_mignon __, 0 5__artist_As109 __, 0 5__artist_li s-3521699958 (1)" src="https://github.com/user-attachments/assets/880fd753-2a8c-4d8f-8481-22990110fb5b" />
